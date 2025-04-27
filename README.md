@@ -1,5 +1,5 @@
 - Hi, I’m Marc Joseph "Kuramu" Andaya
-- I’m a 2nd year college BSIT
+- I’m a BSIT graduate
 - 📫 How to reach me ...
 * Facebook: https://www.facebook.com/andayamarcjoseph1
 * Twitter: https://twitter.com/kuramuX
